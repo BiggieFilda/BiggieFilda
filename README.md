@@ -1,0 +1,4 @@
+- 👋 Zduř jsem BiggieFilda
+- 👀 Mám rád python a c++
+- 🌱 Teď se učim c++
+- 💞️Mám rád šišky s mákem
